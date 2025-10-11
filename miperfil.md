@@ -2,3 +2,9 @@
 
 ## Juan Gamboa Orozco
 ### Desarrollador de Software
+
+### Datos Personales
+- Nombre: Juan gamboa Orozco
+- Documento: 1005279984
+- Direccion: Cra 33 #114-59
+- Telefono: +57 3142076728
