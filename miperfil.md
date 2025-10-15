@@ -13,4 +13,4 @@ Tecnologo en desarrollo de sistemas
 - Telefono: +57 3142076728
 
 ### Experiencia Laboral
-- Mucha
+- Mucha omeeee voz que pensasssss!!!!!
