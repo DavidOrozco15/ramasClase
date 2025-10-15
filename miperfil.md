@@ -11,3 +11,6 @@ Tecnologo en desarrollo de sistemas
 - Documento: 1005279984
 - Direccion: Cra 33 #114-59
 - Telefono: +57 3142076728
+
+### Experiencia Laboral
+- Mucha
