@@ -3,6 +3,9 @@
 ## Juan Gamboa Orozco
 ### Desarrollador de Software
 
+### Perfil Profesional
+Tecnologo en desarrollo de sistemas
+
 ### Datos Personales
 - Nombre: Juan gamboa Orozco
 - Documento: 1005279984
